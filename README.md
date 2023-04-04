@@ -1,1 +1,2 @@
 # collaboration
+Ich bine Rafika Tijani ich bin Ingenieur in Geowissenschaften und ich habe 2 Master absolviert.Erste war in Petroleum Engeneering und Zweite war in Sedementäre Becken Analyse. ich habbe auch WEiterbildung in Gis und Webmapping absolviert.
